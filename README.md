@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Farhan-Abu
+- 👀 I’m interested in - AI 
+- 🌱 I’m currently learning - Web development
+- 📫 How to reach me - farhan.m.abu@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun face: my codes are darker than my future
